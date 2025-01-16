@@ -17,7 +17,7 @@
 
 **यहाँ देखें Fix👉👉 [कल्याण रिजल्ट लाइव ](https://www.google.com/search?q=kalyan+chart+2025+kalyan-chart-fix.hindipanti.in) 👈👈**
 
-**यहाँ देखें Fix👉👉 [कल्याण फाइनल अंक](https://info.pmyojanasathi.com/) 👈👈**
+**यहाँ देखें Fix👉👉 [कल्याण फाइनल अंक](https://kalyan-chart-fix.hindipanti.in/dpboss-satta-matka-result-1/) 👈👈**
 
 
 ## Kalyan Matka Fix
